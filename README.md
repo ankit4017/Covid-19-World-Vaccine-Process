@@ -7,10 +7,4 @@ jkjndsghbjhj
 nkfwejwdasaddshjv
 nqefwjas
 daasmd,das jkbikjnjihi
-mdsadsnbvjbjkb
-jhvhjkjbkhb
-mkm;lknnkghvghjhhvbhj
-hubkb
-bbksdsdds
-dsdssddskjuikfwhjlas;jnbefwh
-biuyyowiqhedhs
+mdsadsnbvjwdishuahwjka
