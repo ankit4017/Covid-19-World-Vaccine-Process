@@ -18,17 +18,3 @@ mklkmjhbvm
 m  lkmsdsd
 rgbgfvdasdas
 vdfjnasdnm
-m,mdcdvbhjbjk
-jbmlkm
-mnnljkewf
-mksdkdewknq
-jkjnjjkn
-jknasd
-msdla
-weqij
-nk kjn
-jnknlk
-dasdas
-dsadsa
-jibjkb
-sfddcdc
