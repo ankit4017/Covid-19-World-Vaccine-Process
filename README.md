@@ -12,5 +12,3 @@ bkb
 bmnn
 mnbn
 ihh
-jbk
-adsds
