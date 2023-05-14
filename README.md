@@ -14,18 +14,4 @@ ihh
 sdads
 fwsdfdfsdjlsa
 sdvdfds jkqrwhguih
-jbkhb
-n kj
-hbksda
-nmhkj;
-jnhb
-dsadas
-sddjh
-qewqwe
-dsasdku,lkum
-kslnac
-lksdan
-KJB
-jgn
-jkbkj
-ghvjh
+jbkh
