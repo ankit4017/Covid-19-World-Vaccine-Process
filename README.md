@@ -19,10 +19,3 @@ lml;
 ojogk
 khblk
 nm 
-m;lk
-mll
-mm,n 
-jasdknd
-dvbbv
-kpok
-lmkm
