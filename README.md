@@ -10,3 +10,8 @@ nm ,m
 hni
 nj
 huii
+inj
+hb
+jn
+h  
+h h
