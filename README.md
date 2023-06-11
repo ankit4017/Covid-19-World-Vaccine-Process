@@ -18,4 +18,4 @@ lmk
 lml;
 ojogk
 khblk
-nm 
+nm ,m
