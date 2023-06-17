@@ -9,13 +9,6 @@ khblk
 nm ,m
 hni
 njxs
-huii
-inj
-hb
-jn
-hcvcdf
-h h
-gogu
-lbj,
+hu
 boul
 aczzx
